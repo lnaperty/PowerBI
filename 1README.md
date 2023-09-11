@@ -1,3 +1,0 @@
-# PowerBI
-
-ADJHAJJL
